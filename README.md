@@ -3,7 +3,7 @@
 - Musical Game,Animation and Galgame lover
 - Not a developer
 - Busy with studies
-- Trying to be a funny boy 
+- Trying to be a funny boy  
 Come to make friends with me🥰
 ---
 Blog: https://blog.yuejian.fun/
